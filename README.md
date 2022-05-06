@@ -2,6 +2,7 @@
 - 👀 I'm looking for someone investors to give me a hand in my project I can guarantee 70% of their investments if they loose their money so I think it's a great opportunity for investing 
 - 🌱 I’m already working on my website that you can take a look on the beta version of it http://ttcake.wotor.net/ also we have a stacking and gaming bot that the people can stack their cake or cakelp and also they can play the telegram games to win cake!
 I'm already working on our nft game in the telegram! @Cakecompetitionbot
+- 📈 My project is already listed on ttswap and laserswap but not officially so it's available for all investors
 - 💞️ I hope you like my project and support me
 - 📫 here is my telegram account: @cakedevtt and also my email that you contact me: mohammadaminamere886@gmail.com
 
